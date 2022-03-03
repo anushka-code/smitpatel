@@ -1,1 +1,1 @@
-Smit Patel's Personal Website created by Anushka Bhave
+Smit Patel's Personal Website created by Anushka
